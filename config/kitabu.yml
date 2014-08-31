@@ -1,5 +1,5 @@
 # The book's title. Will be used everywhere!
-title: "[Your Book Title]"
+title: "is to with but your are on not for get you your they can one with for was do if get can it to one not you it out at just u up in but at we when they out do a up when we out find not have your all one when for this was find so this have I so out are of it not my my with can so we u your to is be we out be it do when get was out for do your of so that was one on they we we this on with  me are it out one with out find its that u out so for that find do  so its at me we not one of one we so they be on one my for but but on it out up but and if a when your if your get we its find be if but out for u but this out all this me just find can can they it all we find u on just on at they out a they one do in"
 
 # The book's language.
 language: en
@@ -11,21 +11,21 @@ language: en
 #   Copyright 2014 by John Doe. This work is licensed under MIT License.
 #   This work is licensed under a Creative Commons Attribution-ShareAlike 3.0 Unported License.
 #   This work is licensed under a Creative Commons Attribution-NonCommercial-NoDerivs 3.0 Unported License.
-#   This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 3.0 Unported License.
 #
-copyright: "Copyright (C) 2014 John Doe."
+#
+copyright: "No Copyright"
 
 # Who's publishing this book.
-publisher: "John Doe"
+publisher: "Cole Willsea"
 
 # When this book was published.
-published_at: "2014-04-30"
+published_at: "2014-09-09"
 
 # Some book description.
-subject: "[Your book description]"
+subject: "A collection of haikus found by @haiku_ebooks on twitter"
 
 # Some keywords that identify this book.
-keywords: "[Your book keywords (comma-separated)]"
+keywords: "haiku, poetry, twitter, net-art, art, robots"
 
 # Some unique identification. Works great with your domain
 # like `http://yourbook.example.com`.
@@ -33,12 +33,12 @@ uid: "39dc2b1abc87ee9ce0b930ee152397d7"
 
 # Your book identification like ISBN or ISSN.
 identifier:
-  id: "http://yourbook.example.com"
+  id: "http://colewillsea.com"
   type: "URL" # can be ISBN, ISSN or URL
 
 # This book authors.
 authors:
-  - "John Doe"
+  - "Cole Willsea"
 
 # The base URL from your source code.
-base_url: http://example.com
+base_url: http://colewillsea.com
