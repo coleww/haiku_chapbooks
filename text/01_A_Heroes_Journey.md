@@ -1,5 +1,12 @@
-# A Heroes Journey
+ A Heroes Journey
 -----------------
+
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
 
 > OH OH OH OH OH
 
@@ -7,7 +14,12 @@
 
 > NOW OH OH OH OH
 
-_by @ClaraRig_
+    By @ClaraRig
+
+
+<br />
+<br />
+<br />
 
 
 
@@ -17,7 +29,11 @@ _by @ClaraRig_
 
 > WAYS TO MURDER ME
 
-_by @ddlwoodley_
+    By @ddlwoodley
+
+
+<br />
+
 
 
 
@@ -27,7 +43,12 @@ _by @ddlwoodley_
 
 > trying to wake up
 
-_by @i_l0ve_her_like_
+    By @i_l0ve_her_like
+
+
+<br />
+<br />
+
 
 
 
@@ -37,7 +58,12 @@ _by @i_l0ve_her_like_
 
 > Woof Woof Woof Woof Woof
 
-_by @AstronautPuppy_
+    By @AstronautPuppy
+
+
+<br />
+<br />
+
 
 
 
@@ -47,7 +73,9 @@ _by @AstronautPuppy_
 
 > get along just fine
 
-_by @shawty_Lo__
+    By @shawty_Lo_
+
+
 
 
 
@@ -57,7 +85,11 @@ _by @shawty_Lo__
 
 > for my tiredness
 
-_by @Rafa_Villareal_
+    By @Rafa_Villareal
+
+
+<br />
+<br />
 
 
 
@@ -67,7 +99,11 @@ _by @Rafa_Villareal_
 
 > or risk destruction
 
-_by @whirrtom_
+    By @whirrtom
+
+
+<br />
+<br />
 
 
 
@@ -77,7 +113,10 @@ _by @whirrtom_
 
 > never really lived
 
-_by @alexandracoburn_
+    By @alexandracoburn
+
+
+<br />
 
 
 
@@ -87,7 +126,12 @@ _by @alexandracoburn_
 
 > AND IT WONT COME OFF
 
-_by @t0nim4rie_
+    By @t0nim4rie
+
+
+<br />
+<br />
+<br />
 
 
 
@@ -97,7 +141,12 @@ _by @t0nim4rie_
 
 > is ridiculous
 
-_by @_Darrenatic_
+    By @_Darrenatic
+
+
+<br />
+<br />
+<br />
 
 
 
@@ -107,7 +156,10 @@ _by @_Darrenatic_
 
 > food and epsom salt
 
-_by @blumin_onion_
+    By @blumin_onion
+
+
+<br />
 
 
 
@@ -117,7 +169,11 @@ _by @blumin_onion_
 
 > BREAKFAST BURRITO
 
-_by @_leahrodriguez_
+    By @_leahrodriguez
+
+
+<br />
+<br />
 
 
 
@@ -127,7 +183,11 @@ _by @_leahrodriguez_
 
 > but it's all gucci
 
-_by @BeauDEE_42_
+    By @BeauDEE_42
+
+
+<br />
+<br />
 
 
 
@@ -137,7 +197,10 @@ _by @BeauDEE_42_
 
 > is to get coffee
 
-_by @LordBartholomeu_
+    By @LordBartholomeu
+
+
+<br />
 
 
 
@@ -147,9 +210,16 @@ _by @LordBartholomeu_
 
 > but I'm up for it
 
-_by @idgafusnnoah_
+    By @idgafusnnoah
 
 
+<br />
+<br />
+<br />
+
+<br />
+<br />
+<br />
 
 > To be outstanding
 
@@ -157,5 +227,7 @@ _by @idgafusnnoah_
 
 > uncomfortable
 
- by @asmalahmed
-__
+    By @asmalahme
+
+
+
