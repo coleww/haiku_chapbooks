@@ -11,161 +11,151 @@ _by @ClaraRig_
 
 
 
-THE SPECTACULAR
+> THE SPECTACULAR
 
-NOW OR THE SPECTACULAR
+> NOW OR THE SPECTACULAR
 
-WAYS TO MURDER ME
+> WAYS TO MURDER ME
 
 _by @ddlwoodley_
 
 
 
-Drinking my coffee
+> Drinking my coffee
 
-black for once and blasting Korn
+> black for once and blasting Korn
 
-trying to wake up
+> trying to wake up
 
 _by @i_l0ve_her_like_
 
 
 
-Woof Woof Woof Woof Woof
+> Woof Woof Woof Woof Woof
 
-Woof Woof Woof Woof Woof Woof Woof
+> Woof Woof Woof Woof Woof Woof Woof
 
-Woof Woof Woof Woof Woof
+> Woof Woof Woof Woof Woof
 
 _by @AstronautPuppy_
 
 
 
-my little pony
+> Cause I heard Jesus
 
-my little pony MAGIC
+> he drank wine and I bet we'd
 
-MAKES IT ALL COMPLETE
-
-_by @EricKiefer_
-
-
-
-Cause I heard Jesus
-
-he drank wine and I bet we'd
-
-get along just fine
+> get along just fine
 
 _by @shawty_Lo__
 
 
 
-coffee and rick ross
+> coffee and rick ross
 
-seem to be the solution
+> seem to be the solution
 
-for my tiredness
+> for my tiredness
 
 _by @Rafa_Villareal_
 
 
 
-Silicon Valley
+> Silicon Valley
 
-needs to lose the arrogance
+> needs to lose the arrogance
 
-or risk destruction
+> or risk destruction
 
 _by @whirrtom_
 
 
 
-if you've never put
+> if you've never put
 
-peanuts in your coke then you've
+> peanuts in your coke then you've
 
-never really lived
+> never really lived
 
 _by @alexandracoburn_
 
 
 
-NOW I HAVE YELLOW
+> NOW I HAVE YELLOW
 
-PAINT ALL OVER MY BODY
+> PAINT ALL OVER MY BODY
 
-AND IT WONT COME OFF
+> AND IT WONT COME OFF
 
 _by @t0nim4rie_
 
 
 
-the amount of times
+> the amount of times
 
-i nearly lose my hamster
+> i nearly lose my hamster
 
-is ridiculous
+> is ridiculous
 
 _by @_Darrenatic_
 
 
 
-I like visiting
+> I like visiting
 
-home because there's endless free
+> home because there's endless free
 
-food and epsom salt
+> food and epsom salt
 
 _by @blumin_onion_
 
 
 
-WHO KNEW YOU COULD SCREAM
+> WHO KNEW YOU COULD SCREAM
 
-SO MUCH OVER A STUPID
+> SO MUCH OVER A STUPID
 
-BREAKFAST BURRITO
+> BREAKFAST BURRITO
 
 _by @_leahrodriguez_
 
 
 
-half of these people
+> half of these people
 
-don't know what really happen
+> don't know what really happen
 
-but it's all gucci
+> but it's all gucci
 
 _by @BeauDEE_42_
 
 
 
-The only reason
+> The only reason
 
-I get up in the mornings
+> I get up in the mornings
 
-is to get coffee
+> is to get coffee
 
 _by @LordBartholomeu_
 
 
 
-Eating a shit ton
+> Eating a shit ton
 
-of gummy worms is hard shit
+> of gummy worms is hard shit
 
-but I'm up for it
+> but I'm up for it
 
 _by @idgafusnnoah_
 
 
 
-To be outstanding
+> To be outstanding
 
-get comfortable with what's
+> get comfortable with what's
 
-uncomfortable
+> uncomfortable
 
  by @asmalahmed
 __
