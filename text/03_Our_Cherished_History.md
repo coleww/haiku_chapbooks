@@ -1,284 +1,161 @@
 Our Cherished History
 -----------------
 
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
 
-everytime someone
-walks by while I do my o's
-I want to hit them
-by @Tbrantonxooox
+> BUT ALL I WANNA
+> DO IS GO BACK TO DISNEY
+> WORLD IM SO UPSET
 
-BUT ALL I WANNA
-DO IS GO BACK TO DISNEY
-WORLD IM SO UPSET
-by @LaurenChoquette
+    by @LaurenChoquette
 
-Guess you really can
-make a successful career
-by sending out nudes
-by @SyndiAay
+<br />
+<br />
 
-Friendly reminder
-that Lil Wayne is richer than
-you will ever be
-by @Mr_McQ
+> Friendly reminder
+> that Lil Wayne is richer than
+> you will ever be
 
-IM SENDING A PIC
-OF PEPPER TO EVERYONE
-TO SEE WHAT THEY SAY
-by @Ketchuplmao
+    by @Mr_McQ
 
-The United States
-financial system can crash
-at any moment
-by @_Frahaaa
+<br />
 
-Every second
-soaked in sadness every
-weekend is a war
-by @Musicfreak_1999
+> The United States
+> financial system can crash
+> at any moment
 
-Didn't know it was
-possible to puke as much
-as I have today
-by @tiagalhardo
+    by @_Frahaaa
 
-all I ever asked
-for was patience and pussy
-but mostly patience
-by @yvngsimbaa
+<br />
+<br />
 
-trying to look smart
-but not too smart to threaten
-everything they say
-by @uhnehsa
+> trying to look smart
+> but not too smart to threaten
+> everything they say
 
-Underwear shopping
-and pizza are the only
-therapy I need
-by @Zoeeeeann
+    by @uhnehsa
 
-Yo yo yo yo yo
-im trying to make a rap
-but I guess life sucks
-by @horanfaggg
+<br />
+<br />
 
-its not everyday
-that you get people jerking
-off over your feet
-o by @tearstainlouis
+> Yo yo yo yo yo
+> im trying to make a rap
+> but I guess life sucks
 
-Your own personal
-Jesus Someone to be ur
-friend Someone's who cares
-o by @rockstar_agc
+    by @horanfaggg
 
-HOLY SHIT HIGH NOTE
-THAT IS HIGH DAMN I CANT HIT
-THAT WOW OK BYE
-o by @Allybearrr6
+<br />
+<br />
 
-Haikus are easy
-But sometimes they don't make sense
-Refrigerator
-by @jamieevertwit
+> IS ANYONE HERE
+> LIVING IN AMERICA
+> I HAVE A QUESTION
 
-I'm tired of this
-mother fucking snow on this
-mother fucking ground
-by @Conwayiscool
+    by @Bangin_clifford
 
-IS ANYONE HERE
-LIVING IN AMERICA
-I HAVE A QUESTION
-by @Bangin_clifford
+<br />
+<br />
 
-Admit you don't call
-Gatorade by its flavor
-but by its color
-by @jim_pls
+> I rather respect
+> you just give me the respect
+> I'm supposed to get
 
-Pizza for breakfast
-exists in some places why
-not in my household
-by @asamiszayn
+    by @Skiparotchi
 
-Before cameras
-nobody knew what they looked
-like with their eyes closed
-by @jeekthefreek
+<br />
+<br />
 
-I have a glass heart
-That has been reduced to shards
-Watch how it shines though
-by @Ethan_Bailey
+> ion even fuck
+> wit all the folks i fucked wit
+> in the beginning
 
-Take me to Paris
-I wanna see if my game
-international
-by @VerdeTerrace_
+    by @Yess_ItsTAY
 
-I rather respect
-you just give me the respect
-I'm supposed to get
-by @Skiparotchi
+<br />
+<br />
 
-ion even fuck
-wit all the folks i fucked wit
-in the beginning
-by @Yess_ItsTAY
+> The person you hate
+> on is the person you act
+> like when your happy
 
-my talents include
-taking my bra off without
-taking my shirt off
-by @TrasanMoore
+    by @CasparBlad
 
-Lemon tea always
-gets me going like a bit
-of Peruvian
-by @60319201
+<br />
+<br />
 
-i couldn't wait till
-i get home to pass the time
-in my room alone
- by @sxffocated
+> If its cold in here
+> I can only imagine
+> how it feels outside
 
-Stop being afraid
-of what could go wrong and think
-of what could go right
- by @caseywoods7
+    by @DiamanteColon
 
-If one more thing puts
-me down I swear it will push
-me over the edge
- by @Tom_Sheppy
+<br />
+<br />
 
-The person you hate
-on is the person you act
-like when your happy
- by @CasparBlad
+> I won't to go Home
+> get under my warm cover
+> and sleep forever
 
-Crazy to think rain
-ruins our day while others
-are praying for it
- by @asuufi1
+    by @YUNG_CHEERUP
 
-If its cold in here
-I can only imagine
-how it feels outside
- by @DiamanteColon
+<br />
+<br />
 
-I won't to go Home
-get under my warm cover
-and sleep forever
- by @YUNG_CHEERUP
+> wow ok SICK GUY
+> never doing that again
+> I can assure you
 
-it would be lovely
-to rollover and pull them
-panties to the side
- by @ChuckRaging
+    by @dracarys___
 
-I feel like young thug
-should be on sesame street
-or do a gap ad
- by @q8rtuv
+<br />
+<br />
 
-literally one
-of the only things I suck
-at drawing is hands
- by @bethforbait
+> of information
+> deteriorates upward
+> through bureaucracies
 
-wow ok SICK GUY
-never doing that again
-I can assure you
- by @dracarys___
+    by @pyelicvfaVirajv
 
-of information
-deteriorates upward
-through bureaucracies
- by @pyelicvfaVirajv
+<br />
+<br />
 
-GOOD MORNING I HOPE
-YOU GET LAID OR THAT YOUR FAVE
-FOLLOWS YOU TODAY
- by @hfsociopxth
+> haven't had a good
+> day today i haven't had
+> a good day today
 
-It's so beautiful
-how grateful homeless people
-are for a dollar
- by @brittibabbyxo
+    by @forgechurchtomm
 
-Why does some boys think
-its acceptable to wear
-super skinny jeans
- by @ItsBriggzy
+<br />
+<br />
 
-Make me beans and rice
-and you can have whatever
-your heart desires
- by @tristan230
+> Everyone I love
+> has been swimming with the sharks
+> and I don't know why
 
-haven't had a good
-day today i haven't had
-a good day today
- by @forgechurchtomm
+    by @Ymaspmore
 
-i went from ashy
-to classy that camara
-ready im flashy
- by @Im_Quis
+<br />
+<br />
 
-Everyone I love
-has been swimming with the sharks
-and I don't know why
- by @Ymaspmore
+> I have no talents
+> and I'm not pretty ok
+> see you tomorrow
 
-I challenge any
-motherfucker who think they
-can eat more than me
- by @_Jorgepina
+    by @paradisegrrrl
 
-A sex scene just came
-on in this movie i was
-watching with my mom
- by @__ThaGirlJaz
+<br />
+<br />
 
-Why do so many
-People my age like coffee
-I don't understand
- by @pepperniall
+> im so fucking mad
+> at my best friend for being
+> everything im not
 
-im so excited
-to go home and see my cat
-i miss her so much
- by @devastatedziall
+    by @tomlinpoof
 
-I have no talents
-and I'm not pretty ok
-see you tomorrow
- by @paradisegrrrl
-
-I have a healthy
-breakfast consisting of grapes
-and mashed potato
- by @sxmwinchesters
-
-I don't like running
-for a set amount of time
-I believe in miles
- by @nandostayshigh
-
-
-im so fucking mad
-at my best friend for being
-everything im not
- by @tomlinpoof
-
-Metaphysical
-poetry will forever
-be my favorite
- by @_JoeAnthony
-
-stop fucking screaming
-and acting all dramatic
-over the damn phone
- by @lolgetaway
+<br />
+<br />
