@@ -19,7 +19,7 @@ copyright: "No Copyright"
 publisher: "Cole Willsea"
 
 # When this book was published.
-published_at: "2014-09-09"
+published_at: "2014-09-01"
 
 # Some book description.
 subject: "A collection of haikus found by @haiku_ebooks on twitter. Haikus are easy / Five then seven then five more / George Bush is racist | by @JohnLodi"
@@ -29,11 +29,11 @@ keywords: "haiku, poetry, twitter, net-art, art, robots"
 
 # Some unique identification. Works great with your domain
 # like `http://yourbook.example.com`.
-uid: "39dc2b1abc87ee9ce0b930ee152397d7"
+uid: "http://coleww.github.io/haiku_chapbooks/"
 
 # Your book identification like ISBN or ISSN.
 identifier:
-  id: "http://colewillsea.com"
+  id: "http://coleww.github.io/haiku_chapbooks/"
   type: "URL" # can be ISBN, ISSN or URL
 
 # This book authors.
