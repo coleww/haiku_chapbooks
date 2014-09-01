@@ -191,5 +191,3 @@ Our Cherished History
 
     by @tomlinpoof
 
-<br />
-<br />

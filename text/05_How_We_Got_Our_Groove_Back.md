@@ -1,233 +1,258 @@
 How We Got Our Groove Back
 -----------------
 
-everything is fine
-when you're standing in the eye
-of the hurricane
-by @dinamorales91
+<br />
+<br /><br />
+<br /><br />
+<br />
 
-my dream was perfect
-everything was going great
-until I woke up
-by @grandeseIs
+> everything is fine
 
-they on an island
-cracking open coconuts
-and catching crawfish
-by @marandabell
+> when you're standing in the eye
 
-I won't be impressed
-with technology until
-I can download food
-by @adesewa_makinde
+> of the hurricane
 
-im so excited
-to go home and see my cat
-i miss her so much
-by @devastatedziall
+    by @dinamorales91
 
-I feel like young thug
-should be on sesame street
-or do a gap ad
-by @q8rtuv
+<br />
+<br />
 
-the invisible
-greeting cards you always send
-me oh how thoughtful
-by @FifteenMoons
+> my dream was perfect
 
-THE NOISES I MADE
-OPENING EACH ENVELOPE
-YOU DON'T UNDERSTAND
-by @pandabouzu
+> everything was going great
 
-thank u boy on bus
-that just whispered to his friend
-that i have nice legs
-by @phanland
+> until I woke up
 
-We make decisions
-based on our truth or the lies
-we tell ourselves
-by @scookcrishelle
+    by @grandeseIs
 
-sick of being sick
-tired of being tired
-bored of being bored
-by @BayleeJustine
+<br />
+<br />
 
-FUCK YOU STOP SHOOTING
-FIREWORKS ITS NOT NEW YEARS YET
-FUCK IM SO SCARED BYE
-o by @paynecclifford
+> they on an island
 
-eyes bright uptight dressed
-girls she can't be what you need
-cause she's seventeen
-o by @myah_vogt
+> cracking open coconuts
 
-did you ever just
-wanna scream i hate people
-out loud in public
-o by @lotusl0cked
+> and catching crawfish
 
-White girls are ashamed
-of their big butts Black girls are
-proud of their big butts
-o by @HateOnDaiseanM5
+    by @marandabell
 
-This episode of
-sailor moon got me crying
-like a little bitch
-by @Taylorwithan_A
+<br />
+<br />
 
-a computer once
-beat me at chess but I beat
-it at kick boxing
-by @KieranFagg
+> im so excited
 
-I JUST HIT MY FOOT
-ON THE CORNER OF A BRICK
-HOLY SHIT IT HURT
-by @remarcablenarry
+> to go home and see my cat
 
-as long as you love
-love love love love love love love
-love love love love me
-by @SARMANDALEE
+> i miss her so much
 
-Haikus are easy
-Five then seven then five more
-George Bush is racist
-by @JohnLodi
+    by @devastatedziall
 
-Id say my dance moves
-are up to par with Taylor
-Swift and Vin Diesel
-by @_stainer_
+<br />
+<br />
 
-I'm serious guys
-I fucking worship nature
-that shit is the bomb
-by @MattTaibi
+> I feel like young thug
 
-STORY OF MY LIFE
-ON THE RADIO MY BUTT
-CHEEKS ARE CONTRACTING
-by @strawlarrypiee
+> should be on sesame street
 
-This is beginning
-to become more frustrating
-than entertaining
-by @hannahkonnie
+> or do a gap ad
 
-It's ok to speed
-if you're going to be late
-for a church meeting
-by @NiggggaNate
+    by @q8rtuv
 
-i sometimes forget
-i was born when matt and ben
-got their first oscar
-by @spunkydouche
+<br />
+<br />
 
-If I get a girl
-pregnant its either a boy
-or an abortion
-by @BigBoyLilDick
+> the invisible
 
-Watch scary movies
-with me and order pizza
-so I know it's real
-by @meg_rooop
+> greeting cards you always send
 
-My nose is running
-and my eyes are swollen fuck
-my entire life
-by @iOntariosAngel
+> me oh how thoughtful
 
-how long can i lay
-in bed before the police
-have to get involved
-by @SJHUP
+    by @FifteenMoons
 
-My mom really cussed
-me out this morning then brought
-me breakfast in bed
-by @nati_xo_
+<br />
+<br />
 
-my camera roll
-is full duh time to delete
-family picture
-by @WOOPZIALL
+> THE NOISES I MADE
 
-do u ever sit
-with ur friends and realize
-ur the beyonce
-by @extiatic
+> OPENING EACH ENVELOPE
 
-waiting for something
-to happen that is never
-going to happen
-by @SNBMZ
+> YOU DON'T UNDERSTAND
 
-home alone all day
-tomorrow surprise surprise
-someone come over
-by @GRae_Esqueda
+    by @pandabouzu
 
-Playing pool feeling
-like reese Witherspoon in sweet
-home Alabama
-by @lilikians
+<br />
+<br />
 
-Couple years ago
-I was in a dark place now
-I'm starting to live
-by @NofeelinzzzZ
+> We make decisions
 
-I swear every
-other day Kim Kardashian
-is fat then skinny
-by @_geo69
+> based on our truth or the lies
 
-I watched two kids try
-and buy weed and another
-got drunk on the plane
-by @skeletontattoo
+> we tell ourselves
 
-Performance issues
-on all services being
-investigated
-by @PurleyHosting
+    by @scookcrishelle
 
-Honestly id kill
-all of you in a second
-in the hunger games
-by @natinthehat0
+<br />
+<br />
 
-I am gonna drink
-smoke and party Let's get drunk
-smoke and have orgies
-by @Albertolobo96
+> sick of being sick
 
-When you are ready
-Come and get it na na na
-na Na na na na
-by @__sxbrinxx
+> tired of being tired
 
-Somalian motto
-fuck bitches got sleep hungry
-pirate and repeat
-by @Somalian_Slayer
+> bored of being bored
 
-If one more person
-threatens to deactivate
-I mIGHT JUST LOSE IT
-by @rnagcon
+    by @BayleeJustine
 
-how ever you dress
-where ever you go yes means
-yes and no means no
- by @bleenah
+<br />
+<br />
+
+> did you ever just
+
+> wanna scream i hate people
+
+> out loud in public
+
+    by @lotusl0cked
+
+<br />
+<br />
+
+> a computer once
+
+> beat me at chess but I beat
+
+> it at kick boxing
+
+    by @KieranFagg
+
+<br />
+<br />
+
+> I JUST HIT MY FOOT
+
+> ON THE CORNER OF A BRICK
+
+> HOLY SHIT IT HURT
+
+    by @remarcablenarry
+
+<br />
+<br />
+
+> as long as you love
+
+> love love love love love love love
+
+> love love love love me
+
+    by @SARMANDALEE
+
+<br />
+<br />
+
+> I'm serious guys
+
+> I fucking worship nature
+
+> that shit is the bomb
+
+    by @MattTaibi
+
+<br />
+<br />
+
+> This is beginning
+
+> to become more frustrating
+
+> than entertaining
+
+    by @hannahkonnie
+
+<br />
+<br />
+
+> i sometimes forget
+
+> i was born when matt and ben
+
+> got their first oscar
+
+    by @spunkydouche
+
+<br />
+<br />
+
+> how long can i lay
+
+> in bed before the police
+
+> have to get involved
+
+    by @SJHUP
+
+<br />
+<br />
+
+> my camera roll
+
+> is full duh time to delete
+
+> family picture
+
+    by @WOOPZIALL
+
+<br />
+<br />
+
+> do u ever sit
+
+> with ur friends and realize
+
+> ur the beyonce
+
+    by @extiatic
+
+<br />
+<br />
+
+> home alone all day
+
+> tomorrow surprise surprise
+
+> someone come over
+
+    by @GRae_Esqueda
+
+<br />
+<br />
+
+> Couple years ago
+
+> I was in a dark place now
+
+> I'm starting to live
+
+    by @NofeelinzzzZ
+
+<br />
+<br />
+
+> If one more person
+
+> threatens to deactivate
+
+> I mIGHT JUST LOSE IT
+
+    by @rnagcon
+
+<br />
+<br />
+
+> Performance issues
+
+> on all services being
+
+> investigated
+
+    by @PurleyHosting
 
