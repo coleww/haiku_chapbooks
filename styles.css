@@ -1,0 +1,32 @@
+body {
+  text-align: justify;
+  margin: 5%;
+}
+
+blockquote {
+  margin-left: auto;
+  margin-right: auto;
+  width: 66%;
+}
+
+blockquote > p {
+  letter-spacing: 5px;
+
+}
+
+.description {
+  font-size: 50px;
+}
+
+.example {
+  font-size: 25px;
+  font-style: italic;
+}
+
+.authors {
+  font-size: 18px;
+}
+
+.foot {
+  text-align: right;
+}
