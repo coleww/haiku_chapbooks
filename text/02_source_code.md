@@ -1,9 +1,9 @@
  Source Code for Haiku eBooks
 ----------------
 
-Gemfile
 
-    # requiring libraries
+
+    # haiku_ebooks/Gemfile
 
     source "https://rubygems.org"
 
@@ -12,17 +12,17 @@ Gemfile
 
 ************
 
-Procfile
 
-    # telling heroku what to do with this thing
+
+    # haiku_ebooks/Procfile
 
     haiku: ruby lib/Haiku.rb
 
 ************
 
-web_scraper.rb
 
-    # connecting to twitter
+
+    # haiku_ebooks/lib/web_scraper.rb
 
 
     require "twitter"
@@ -45,9 +45,9 @@ web_scraper.rb
 
 ************
 
-syllable_dictionary.rb
 
-    # Loading a gigantic dictionary that maps WORD: NUMBER_OF_SYLLABLES_IN_WORD
+
+    # haiku_ebooks/lib/syllable_dictionary.rb
 
     # syllable_dictionary.txt is based on the CMU pronuniciation dictionary and looks like this:
     # CAT, 1
@@ -65,9 +65,9 @@ syllable_dictionary.rb
 
 ************
 
-String.rb
 
-    # Modifying Ruby core so that strings/texts know their "Haiku-ness"
+
+    # haiku_ebooks/lib/string.rb
 
     require_relative 'syllable_dictionary.rb'
 
@@ -131,9 +131,9 @@ String.rb
 
 ************
 
-Haiku.rb
 
-    # Basic logic for a robot that tweets at an interval forever
+
+    # haiku_ebooks/lib/Haiku.rb
 
     require_relative 'string.rb'
     require_relative 'syllable_dictionary.rb'
