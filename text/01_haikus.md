@@ -19,7 +19,7 @@ is to with but your are on not for get you your they can one with for was do if 
 
 <br />
 <br />
-<br />
+
 
 
 
@@ -33,7 +33,7 @@ is to with but your are on not for get you your they can one with for was do if 
 
 
 <br />
-
+<br />
 
 
 
@@ -75,8 +75,8 @@ is to with but your are on not for get you your they can one with for was do if 
 
     By @shawty_Lo_
 
-
-
+<br />
+<br />
 
 
 > coffee and rick ross
@@ -117,7 +117,7 @@ is to with but your are on not for get you your they can one with for was do if 
 
 
 <br />
-
+<br />
 
 
 > NOW I HAVE YELLOW
@@ -129,7 +129,7 @@ is to with but your are on not for get you your they can one with for was do if 
     By @t0nim4rie
 
 
-<br />
+
 <br />
 <br />
 
@@ -146,7 +146,7 @@ is to with but your are on not for get you your they can one with for was do if 
 
 <br />
 <br />
-<br />
+
 
 
 
@@ -160,7 +160,7 @@ is to with but your are on not for get you your they can one with for was do if 
 
 
 <br />
-
+<br />
 
 
 > WHO KNEW YOU COULD SCREAM
@@ -199,7 +199,7 @@ is to with but your are on not for get you your they can one with for was do if 
 
     By @LordBartholomeu
 
-
+<br />
 <br />
 
 
@@ -213,13 +213,10 @@ is to with but your are on not for get you your they can one with for was do if 
     By @idgafusnnoah
 
 
-<br />
-<br />
-<br />
 
 <br />
 <br />
-<br />
+
 
 > To be outstanding
 
@@ -243,7 +240,6 @@ is to with but your are on not for get you your they can one with for was do if 
 
 <br />
 <br />
-<br />
 
 > i still cant believe
 
@@ -253,6 +249,7 @@ is to with but your are on not for get you your they can one with for was do if 
 
     by @denahappy
 
+<br />
 <br />
 
 
@@ -375,6 +372,7 @@ is to with but your are on not for get you your they can one with for was do if 
 
     by @Mr_McQ
 
+<br />
 <br />
 
 > The United States
@@ -540,7 +538,7 @@ is to with but your are on not for get you your they can one with for was do if 
     by @tomlinpoof
 
 
-<br /><br />
+<br />
 <br />
 
 > I want a starbucks
@@ -774,9 +772,6 @@ is to with but your are on not for get you your they can one with for was do if 
 <br />
 <br />
 
-
-<br /><br />
-<br />
 
 > everything is fine
 
