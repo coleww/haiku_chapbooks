@@ -8,21 +8,6 @@ is to with but your are on not for get you your they can one with for was do if 
 <br />
 <br />
 
-> OH OH OH OH OH
-
-> OH OH WE RE ON FIRE
-
-> NOW OH OH OH OH
-
-    By @ClaraRig
-
-
-<br />
-<br />
-
-
-
-
 > THE SPECTACULAR
 
 > NOW OR THE SPECTACULAR
@@ -37,21 +22,6 @@ is to with but your are on not for get you your they can one with for was do if 
 
 
 
-> Drinking my coffee
-
-> black for once and blasting Korn
-
-> trying to wake up
-
-    By @i_l0ve_her_like
-
-
-<br />
-<br />
-
-
-
-
 > Woof Woof Woof Woof Woof
 
 > Woof Woof Woof Woof Woof Woof Woof
@@ -60,20 +30,6 @@ is to with but your are on not for get you your they can one with for was do if 
 
     By @AstronautPuppy
 
-
-<br />
-<br />
-
-
-
-
-> Cause I heard Jesus
-
-> he drank wine and I bet we'd
-
-> get along just fine
-
-    By @shawty_Lo_
 
 <br />
 <br />
@@ -107,74 +63,6 @@ is to with but your are on not for get you your they can one with for was do if 
 
 
 
-> if you've never put
-
-> peanuts in your coke then you've
-
-> never really lived
-
-    By @alexandracoburn
-
-
-<br />
-<br />
-
-
-> NOW I HAVE YELLOW
-
-> PAINT ALL OVER MY BODY
-
-> AND IT WONT COME OFF
-
-    By @t0nim4rie
-
-
-
-<br />
-<br />
-
-
-
-> the amount of times
-
-> i nearly lose my hamster
-
-> is ridiculous
-
-    By @_Darrenatic
-
-
-<br />
-<br />
-
-
-
-
-> I like visiting
-
-> home because there's endless free
-
-> food and epsom salt
-
-    By @blumin_onion
-
-
-<br />
-<br />
-
-
-> WHO KNEW YOU COULD SCREAM
-
-> SO MUCH OVER A STUPID
-
-> BREAKFAST BURRITO
-
-    By @_leahrodriguez
-
-
-<br />
-<br />
-
 
 
 > half of these people
@@ -203,33 +91,6 @@ is to with but your are on not for get you your they can one with for was do if 
 <br />
 
 
-
-> Eating a shit ton
-
-> of gummy worms is hard shit
-
-> but I'm up for it
-
-    By @idgafusnnoah
-
-
-
-<br />
-<br />
-
-
-> To be outstanding
-
-> get comfortable with what's
-
-> uncomfortable
-
-    By @asmalahme
-
-
-<br />
-<br />
-
 > the worst desire
 
 > apart from the desire
@@ -253,16 +114,7 @@ is to with but your are on not for get you your they can one with for was do if 
 <br />
 
 
-> um why is there a
 
-> fish casually swimming
-
-> around the kitchen
-
-    by @o51393
-
-<br />
-<br />
 
 > and adorable
 
@@ -330,16 +182,6 @@ is to with but your are on not for get you your they can one with for was do if 
 <br />
 <br />
 
-> I am a small house
-
-> plant that people easily
-
-> forget to water
-
-    by @TrixiFreaking
-
-<br />
-<br />
 
 > my cat is snoring
 
@@ -353,38 +195,7 @@ is to with but your are on not for get you your they can one with for was do if 
 <br />
 <br />
 
-> BUT ALL I WANNA
 
-> DO IS GO BACK TO DISNEY
-
-> WORLD IM SO UPSET
-
-    by @LaurenChoquette
-
-<br />
-<br />
-
-> Friendly reminder
-
-> that Lil Wayne is richer than
-
-> you will ever be
-
-    by @Mr_McQ
-
-<br />
-<br />
-
-> The United States
-
-> financial system can crash
-
-> at any moment
-
-    by @_Frahaaa
-
-<br />
-<br />
 
 > trying to look smart
 
@@ -437,17 +248,6 @@ is to with but your are on not for get you your they can one with for was do if 
 > in the beginning
 
     by @Yess_ItsTAY
-
-<br />
-<br />
-
-> The person you hate
-
-> on is the person you act
-
-> like when your happy
-
-    by @CasparBlad
 
 <br />
 <br />
@@ -507,16 +307,6 @@ is to with but your are on not for get you your they can one with for was do if 
 <br />
 <br />
 
-> Everyone I love
-
-> has been swimming with the sharks
-
-> and I don't know why
-
-    by @Ymaspmore
-
-<br />
-<br />
 
 > I have no talents
 
@@ -529,17 +319,6 @@ is to with but your are on not for get you your they can one with for was do if 
 <br />
 <br />
 
-> im so fucking mad
-
-> at my best friend for being
-
-> everything im not
-
-    by @tomlinpoof
-
-
-<br />
-<br />
 
 > I want a starbucks
 
@@ -574,16 +353,6 @@ is to with but your are on not for get you your they can one with for was do if 
 <br />
 <br />
 
-> Who made his captors
-
-> his comrades And his prison
-
-> cell his podium
-
-    by @william_vocab
-
-<br />
-<br />
 
 > I need to get drunk
 
@@ -607,38 +376,6 @@ is to with but your are on not for get you your they can one with for was do if 
 <br />
 <br />
 
-> wow disappointed
-
-> does not begin to explain
-
-> what I am right now
-
-    by @CaliforAnia
-
-<br />
-<br />
-
-> You can take your words
-
-> and all your lies oh oh oh
-
-> i really don't care
-
-    by @opspau
-
-<br />
-<br />
-
-> It makes me nervous
-
-> when this kid gets his knives back
-
-> I'm so mean to him
-
-    by @AdamShiplett
-
-<br />
-<br />
 
 > You don't know me though
 
@@ -658,105 +395,6 @@ is to with but your are on not for get you your they can one with for was do if 
 > basic girls basic
 
     by @deadboytonyy
-
-<br />
-<br />
-
-> Everything changes
-
-> when all the lights in the room
-
-> are as low as you
-
-    by @Josephaggot
-
-<br />
-<br />
-
-> I need food I need
-
-> food I need food I need food
-
-> someone give me food
-
-    by @fxckjade_
-
-<br />
-<br />
-
-> Don't Be A Menace
-
-> To South Central While Drinking
-
-> Your Juice in the Hood
-
-    by @AshGates0829
-
-<br />
-<br />
-
-> the severity
-
-> of my procrastination
-
-> is ridiculous
-
-    by @LekFrida
-
-<br />
-<br />
-
->  Getting rewarded
-
-> for staying at work this late
-
-> on a Saturday
-
-    by @CedricSprinkle
-
-<br />
-<br />
-
-> When this music drops
-
-> whoever knows me will think
-
-> they never knew me
-
-    by @1OmariShakir
-
-<br />
-<br />
-
-> I don't understand
-
-> America's obsession
-
-> with Girl Scout cookies
-
-    by @isabelrog18
-
-<br />
-<br />
-
-> I actually
-
-> went to sleep early last night
-
-> and i feel like death
-
-    by @Jenn_x31
-
-<br />
-<br />
-
-> Why does everyone
-
-> have to be so negative
-
-> about everything
-
-    by @xoalyssa_flo11
 
 <br />
 <br />
@@ -872,39 +510,6 @@ is to with but your are on not for get you your they can one with for was do if 
 <br />
 <br />
 
-> did you ever just
-
-> wanna scream i hate people
-
-> out loud in public
-
-    by @lotusl0cked
-
-<br />
-<br />
-
-> a computer once
-
-> beat me at chess but I beat
-
-> it at kick boxing
-
-    by @KieranFagg
-
-<br />
-<br />
-
-> I JUST HIT MY FOOT
-
-> ON THE CORNER OF A BRICK
-
-> HOLY SHIT IT HURT
-
-    by @remarcablenarry
-
-<br />
-<br />
-
 > as long as you love
 
 > love love love love love love love
@@ -935,49 +540,6 @@ is to with but your are on not for get you your they can one with for was do if 
 
     by @hannahkonnie
 
-<br />
-<br />
-
-> i sometimes forget
-
-> i was born when matt and ben
-
-> got their first oscar
-
-    by @spunkydouche
-
-<br />
-<br />
-
-> how long can i lay
-
-> in bed before the police
-
-> have to get involved
-
-    by @SJHUP
-
-<br />
-<br />
-
-> my camera roll
-
-> is full duh time to delete
-
-> family picture
-
-    by @WOOPZIALL
-
-<br />
-<br />
-
-> do u ever sit
-
-> with ur friends and realize
-
-> ur the beyonce
-
-    by @extiatic
 
 <br />
 <br />
