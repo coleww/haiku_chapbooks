@@ -1,7 +1,11 @@
  Source Code for Haiku eBooks
 ----------------
 
+<br />
+
 ************
+
+<br />
 
     # haiku_ebooks/Gemfile
 
@@ -10,42 +14,27 @@
     gem "twitter", "~> 4.8.1"
     gem "tweetstream", "~>2.5.0"
 
+<br />
+
 ************
 
-
+<br />
 
     # haiku_ebooks/Procfile
 
     haiku: ruby lib/Haiku.rb
 
-************
+<br />
 
 
-
-    # haiku_ebooks/lib/web_scraper.rb
-
-
-    require "twitter"
-    require "tweetstream"
-
-    Twitter.configure do |config|
-      config.consumer_key       = ENV['TWITTER_CONSUMER_KEY']
-      config.consumer_secret    = ENV['TWITTER_CONSUMER_SECRET']
-      config.oauth_token        = ENV['TWITTER_OAUTH_TOKEN']
-      config.oauth_token_secret = ENV['TWITTER_OAUTH_SECRET']
-    end
-
-    TweetStream.configure do |config|
-      config.consumer_key       = ENV['TWITTER_CONSUMER_KEY']
-      config.consumer_secret    = ENV['TWITTER_CONSUMER_SECRET']
-      config.oauth_token        = ENV['TWITTER_OAUTH_TOKEN']
-      config.oauth_token_secret = ENV['TWITTER_OAUTH_SECRET']
-      config.auth_method        = :oauth
-    end
+<br />
+<br />
+<br />
+<br />
 
 ************
 
-
+<br />
 
     # haiku_ebooks/lib/syllable_dictionary.rb
 
@@ -63,9 +52,38 @@
       SYLLABLE_DICTIONARY[word] = syllables.to_i
     end
 
+<br />
+
 ************
 
+<br />
 
+    # haiku_ebooks/lib/web_scraper.rb
+
+    require "twitter"
+    require "tweetstream"
+
+    Twitter.configure do |config|
+      config.consumer_key       = ENV['TWITTER_CONSUMER_KEY']
+      config.consumer_secret    = ENV['TWITTER_CONSUMER_SECRET']
+      config.oauth_token        = ENV['TWITTER_OAUTH_TOKEN']
+      config.oauth_token_secret = ENV['TWITTER_OAUTH_SECRET']
+    end
+
+
+    TweetStream.configure do |config|
+      config.consumer_key       = ENV['TWITTER_CONSUMER_KEY']
+      config.consumer_secret    = ENV['TWITTER_CONSUMER_SECRET']
+      config.oauth_token        = ENV['TWITTER_OAUTH_TOKEN']
+      config.oauth_token_secret = ENV['TWITTER_OAUTH_SECRET']
+      config.auth_method        = :oauth
+    end
+
+<br />
+
+************
+
+<br />
 
     # haiku_ebooks/lib/string.rb
 
@@ -88,6 +106,8 @@
         rescue TypeError
           return nil
       end
+
+
 
       def haiku?
         return false if self.syllable_count != 17
@@ -129,7 +149,10 @@
       end
     end
 
+
 ************
+
+<br />
 
 
 
@@ -164,16 +187,14 @@
     end
 
 
+<br />
+<br /><br /><br />
+
 ************
 
-    # haiku_ebooks/spec/string_spec.rb
+<br />
 
-    RSpec.configure do |config|
-      config.treat_symbols_as_metadata_keys_with_true_values = true
-      config.run_all_when_everything_filtered = true
-      config.filter_run :focus
-      config.order = 'random'
-    end
+    # haiku_ebooks/spec/string_spec.rb
 
     require_relative '../lib/string.rb'
 
@@ -215,4 +236,5 @@
       end
     end
 
-************
+<br />
+
