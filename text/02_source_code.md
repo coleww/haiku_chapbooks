@@ -3,7 +3,8 @@
 
 Gemfile
 
-    _
+    # requiring libraries
+
     source "https://rubygems.org"
 
     gem "twitter", "~> 4.8.1"
@@ -13,11 +14,16 @@ Gemfile
 
 Procfile
 
+    # telling heroku what to do with this thing
+
     haiku: ruby lib/Haiku.rb
 
 ************
 
 web_scraper.rb
+
+    # connecting to twitter
+
 
     require "twitter"
     require "tweetstream"
@@ -41,10 +47,13 @@ web_scraper.rb
 
 syllable_dictionary.rb
 
+    # Loading a gigantic dictionary that maps WORD: NUMBER_OF_SYLLABLES_IN_WORD
+
     # syllable_dictionary.txt is based on the CMU pronuniciation dictionary and looks like this:
     # CAT, 1
     # CATHY, 2
     # etc. (Sorry about that, but we can't show files that are this big right now.)
+
     dict_path = File.expand_path("../syllable_dictionary.txt", __FILE__)
     dict = File.readlines(dict_path, "r").join.split("\n")
 
@@ -57,6 +66,8 @@ syllable_dictionary.rb
 ************
 
 String.rb
+
+    # Modifying Ruby core so that strings/texts know their "Haiku-ness"
 
     require_relative 'syllable_dictionary.rb'
 
@@ -121,6 +132,8 @@ String.rb
 ************
 
 Haiku.rb
+
+    # Basic logic for a robot that tweets at an interval forever
 
     require_relative 'string.rb'
     require_relative 'syllable_dictionary.rb'
