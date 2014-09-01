@@ -1,6 +1,10 @@
 Dispatches From Arizona
 -----------------
 
+<br />
+<br /><br />
+<br /><br />
+<br />
 
 > I want a starbucks
 
@@ -10,6 +14,8 @@ Dispatches From Arizona
 
     by @_celestteee
 
+<br />
+<br />
 
 > Go away shoo man
 
@@ -19,6 +25,8 @@ Dispatches From Arizona
 
     by @saaaje
 
+<br />
+<br />
 
 > I regret selling
 
@@ -28,6 +36,8 @@ Dispatches From Arizona
 
     by @Yo_Edlex
 
+<br />
+<br />
 
 > Who made his captors
 
@@ -37,6 +47,8 @@ Dispatches From Arizona
 
     by @william_vocab
 
+<br />
+<br />
 
 > I need to get drunk
 
@@ -46,6 +58,8 @@ Dispatches From Arizona
 
     by @_abieevans
 
+<br />
+<br />
 
 > the cats are sitting
 
@@ -55,6 +69,8 @@ Dispatches From Arizona
 
     by @Meow_or_Never
 
+<br />
+<br />
 
 > wow disappointed
 
@@ -64,6 +80,8 @@ Dispatches From Arizona
 
     by @CaliforAnia
 
+<br />
+<br />
 
 > You can take your words
 
@@ -73,6 +91,8 @@ Dispatches From Arizona
 
     by @opspau
 
+<br />
+<br />
 
 > It makes me nervous
 
@@ -82,6 +102,8 @@ Dispatches From Arizona
 
     by @AdamShiplett
 
+<br />
+<br />
 
 > You don't know me though
 
@@ -91,6 +113,8 @@ Dispatches From Arizona
 
     by @Geerockss_
 
+<br />
+<br />
 
 > Basic girls calling
 
@@ -100,6 +124,8 @@ Dispatches From Arizona
 
     by @deadboytonyy
 
+<br />
+<br />
 
 > Everything changes
 
@@ -109,6 +135,8 @@ Dispatches From Arizona
 
     by @Josephaggot
 
+<br />
+<br />
 
 > I need food I need
 
@@ -118,6 +146,8 @@ Dispatches From Arizona
 
     by @fxckjade_
 
+<br />
+<br />
 
 > Don't Be A Menace
 
@@ -127,6 +157,8 @@ Dispatches From Arizona
 
     by @AshGates0829
 
+<br />
+<br />
 
 > the severity
 
@@ -136,6 +168,8 @@ Dispatches From Arizona
 
     by @LekFrida
 
+<br />
+<br />
 
 >  Getting rewarded
 
@@ -145,6 +179,8 @@ Dispatches From Arizona
 
     by @CedricSprinkle
 
+<br />
+<br />
 
 > When this music drops
 
@@ -154,6 +190,8 @@ Dispatches From Arizona
 
     by @1OmariShakir
 
+<br />
+<br />
 
 > I don't understand
 
@@ -163,6 +201,8 @@ Dispatches From Arizona
 
     by @isabelrog18
 
+<br />
+<br />
 
 > I actually
 
@@ -172,6 +212,8 @@ Dispatches From Arizona
 
     by @Jenn_x31
 
+<br />
+<br />
 
 > Why does everyone
 
@@ -181,6 +223,8 @@ Dispatches From Arizona
 
     by @xoalyssa_flo11
 
+<br />
+<br />
 
 > This is not real life
 
@@ -189,3 +233,6 @@ Dispatches From Arizona
 > I don't understand
 
     by @kimbaly_ann
+
+<br />
+<br />

@@ -1,1 +1,5 @@
 /* add custom CSS */
+
+p {
+  letter-spacing: 5px;
+}
