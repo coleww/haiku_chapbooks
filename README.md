@@ -1,16 +1,9 @@
-haiku_chapbooks
+haiku_chapbooks_vol_1
 ===============
 
-A chapbook/pdf/ebook/zine version of 
+[GET IT ON SCRIBD](http://www.scribd.com/doc/238329116/Haiku-Chapbooks-Vol-1)
 
-[haiku](https://github.com/coleww/haiku_ebooks)
 
-[ebooks](https://twitter.com/haiku_ebooks)
 
-made with kitabu and prince or whatever
+A chapbook/pdf/ebook/zine version of [haiku](https://github.com/coleww/haiku_ebooks) [ebooks](https://twitter.com/haiku_ebooks) made with kitabu and prince or whatever
 
-work in progress
-
-YOU try editing like thousands of twitter haikus sometime
-
-make you go crazy
